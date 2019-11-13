@@ -17,3 +17,8 @@ Management dictates that you have a degree of separation from your team. You sho
 
 ### 4. Good Communicator
 Until you clearly communicate your vision to your team and tell them the strategy to achieve the goal, it will be very difficult for you to get the results you want. Simply put, if you are unable to communicate your message effectively to your team, you can never be a good leader. A good communicator can be a good leader. Words have the power to motivate people and make them do the unthinkable. If you use them effectively, you can also achieve better results.
+
+### 5. Be a role Model
+Setting the right example and role modelling how leaders want their teams to act and perform is crucial. All eyes are on you, watching your every move as you set the expectations of the team members. If the leadership team is smartly dressed and punctual in the mornings, then this will encourage your staff to replicate this behavior. They will look at your willingness to roll up your sleeves and get stuck in  to achieve your team goals, they will look to see how you communicate at all hierarchical levels and they will analyse how accountable you are when things are going badly. Being a good role model is vital if you want your team members to be as professional as you are.
+
+Lead by example in everything you do at work. It can be very difficult to reprimand a member of staff for something if you are a habitual offender.
